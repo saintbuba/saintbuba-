@@ -1,0 +1,1 @@
+nowy pomysly stacha
